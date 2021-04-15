@@ -1,1 +1,1 @@
-# worriors
+# warriors
